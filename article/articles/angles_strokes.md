@@ -1,3 +1,5 @@
+![Cover](https://t2.genius.com/unsafe/916x0/https%3A%2F%2Fimages.genius.com%2F0e9c4a5f242d330783cb469a52599eac.1000x993x1.png)
+
 "Angles" is the fourth studio album by the American rock band The Strokes, released in 2011. This album marked a new direction for the band, as it featured a more collaborative writing process and a departure from their signature garage rock sound. Here is a detailed review of "Angles":
 
 "Machu Picchu" - The opening track sets the tone for the album, with its upbeat rhythm and catchy guitar riffs. It's a strong start that gets you hooked and excited for what's to come.
